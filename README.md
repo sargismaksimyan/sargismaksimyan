@@ -9,7 +9,7 @@ I'm excited to collaborate with skilled developers, sharing ideas and tackling c
 
 ⚐ Based in Planet Earth
 
-ϟ Currently I'm founding a company focused on development, security, and IoT solutions, actively exploring AI to enhance our services for clients.
+ϟ Founder of a fast-growing tech company focused on development, security, and IoT — now enhancing our offerings with AI-driven solutions.
 
 
 
